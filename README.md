@@ -2,9 +2,9 @@
 
 ### HorizonGreen 👋
 
-您可以免费获取 EB1A 杰出人才绿卡 DIY 准备攻略指南 👉 [EB1A杰出人才绿卡指南-地平线-ver.Oct2023.pdf](https://github.com/EB1A-Horizon/EB1A-Guidance/blob/main/EB1A%E6%9D%B0%E5%87%BA%E4%BA%BA%E6%89%8D%E7%BB%BF%E5%8D%A1%E6%8C%87%E5%8D%97-%E5%9C%B0%E5%B9%B3%E7%BA%BF-ver.Oct2023.pdf)
+您可以免费获取 EB1A 杰出人才绿卡 + NIW 国家利益豁免 DIY 准备攻略指南 👉 [EB1A+NIW绿卡指南_ver.Jan2025.pdf](https://github.com/HorizonGreen/EB1A-Guidance/blob/main/EB1A%2BNIW%E7%BB%BF%E5%8D%A1%E6%8C%87%E5%8D%97_ver.Jan2025.pdf)
 
-本人也接定制申请，曾发表过 40+ 篇论文，负责写全部申请材料，深度挖掘引用，联系推荐人和写推荐信，不需要您写几十页 Research Summary。
+地平线也提供免费评估规划，定制 NIW 和 EB1A 申请定制委托写作，地平线曾发表过 40+ 篇论文，会负责您的全部申请信材料。包括去阅读并分析您的背景材料和报道，深度挖掘证据链逻辑，突出您的贡献和亮点，整理论文、专利、引用记录及相关附件，联系推荐人写推荐信。所有材料没有模版，不需要您自己写几十页的研究和项目总结，是平日繁忙或拖延症患者最佳选择。
 
 微信号：eb1a_horizon
 
